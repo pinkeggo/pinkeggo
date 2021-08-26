@@ -1,6 +1,7 @@
 heyo heyo welcome to the freshman study group :3
 
 basic rules:
+
 - don't be mean or your gonna get kicked
 - welcome new students
 
@@ -22,5 +23,8 @@ please dont:
 
 announcements will be made in the psa section, test/assessment/project announcements or discussion are welcome in the announcements section.
 
+please give me suggestions in the suggestions panel, and bear with me since i suck at discord.
+
 please have fun, and lets have a successful year!
+
 -jess
